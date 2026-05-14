@@ -1,4 +1,4 @@
-# 
+# custom nft flip bot | wash-trading-execution + price-impact-analysis is the best nft flip bot, featuring wash-trading-execution and price-impact-analysis. Fast, smart, and
 
 
 
